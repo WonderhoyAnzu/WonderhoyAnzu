@@ -5,6 +5,9 @@
 ☆Play Pony Town / cosplayer 
 
 ☆ Pls do not copy or color pick my ponies! \ inspiration is allowed!! 
+
+✩ Follow my GitHub Wonderhoy!!
+（☆/＞u＜/）
  
  ![Model](https://s1.zerochan.net/Unidentified.600.4360561.jpg) 
  
